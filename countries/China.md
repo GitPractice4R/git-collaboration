@@ -5,7 +5,7 @@
 ## capital
 
  
-## official language
+## official language Mandarin
 
 
 ## interesting trivia
